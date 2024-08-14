@@ -1,0 +1,1 @@
+Diziler ile ilgili pratik
